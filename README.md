@@ -1,6 +1,6 @@
 ## Agos Garrido
-- just rock
-- me gustan los michis y los oso panda 
+- just rock and metal
+- me gustan los gaticos
 __
 rawr
 https://youtube.com/shorts/bTEic0B0yY8?feature=shared
