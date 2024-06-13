@@ -1,5 +1,5 @@
 ## Agos Garrido
-- puro rock fresh
+- just rock
 - me gustan los michis y los oso panda 
 __
 rawr
