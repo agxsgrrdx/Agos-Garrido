@@ -7,4 +7,4 @@ https://youtube.com/shorts/bTEic0B0yY8?feature=shared
 __
 ![]
 !(ntuploads2018/05/17124546Kurt-Cobain-muerte-11.jpg)
-https://images.app.goo.gl/QNainS7zax4ahKLy6
+!https://images.app.goo.gl/7ny7HgRQhYhKDzoYA
